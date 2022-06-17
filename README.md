@@ -1,2 +1,2 @@
 # Apps
-Apps for Android 
+Apps for Android and for Noobs. hahahahh.....
